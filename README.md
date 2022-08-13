@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Rollyn Aljohn A. Vinuya
-- 👨‍💻 Aspiring Software Engineer. 
+- 👨‍💻 Aspiring to be a Software Engineer. 
 - 🌱 I’m currently studying at PHINMA CAGAYAN DE ORO COLLEGE. 
